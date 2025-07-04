@@ -18,7 +18,4 @@
   رفع الوعي المجتمعي بأهمية الفحوصات المبكرة.
 
 
-
-
-
-![Uploading 1 (4).png…]()
+![1 (4)](https://github.com/user-attachments/assets/8659e767-3fe2-47c0-a966-e6579ac33a6c)
